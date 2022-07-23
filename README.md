@@ -1,3 +1,3 @@
-# FINAAAA
+# SELAMAT MENEMPUH HIDUP BARU
 
-created by fins
+created by UNKNOWN
