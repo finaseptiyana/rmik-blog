@@ -1,3 +1,3 @@
-# SELAMAT MENEMPUH HIDUP BARU
+# SEMANGAT
 
-created by UNKNOWN
+created by unknown
