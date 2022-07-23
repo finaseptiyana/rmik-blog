@@ -1,3 +1,3 @@
-# SEMANGAT
+# SEMANGAT!
 
 created by unknown
